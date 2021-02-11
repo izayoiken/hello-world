@@ -1,2 +1,1 @@
-# hello-world
-Hi im new here
+https://www.ac10hacks.com/safelink/?url=aHR0cHM6Ly9saW5rLnBlbmFzZW8ubXkuaWQvMjAyMS8wMS93b3JrLWZyb20taG9tZS1vbi1jb21wdXRlci5odG1sP3VybD1hSFIwY0hNNkx5OW5hWFJvZFdJdVkyOXRMMkZqTVRCaFl6RXdMMGhoWTJ0bVlnPT0=
